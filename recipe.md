@@ -2,6 +2,16 @@
 
 A healthy meal
 
+**Ingredients**
+
+    200 g uncooked beetroot
+    400 g dried wholemeal spaghetti or penne pasta
+    130 g pine nuts
+    100 g frozen peas
+    1.5 cloves garlic
+    2 tbs balsamic vinegar
+    30 g rocket
+
 **Instructions**
 
 -   Preheat your oven to 200°C/fan/220°C/gas 7.
